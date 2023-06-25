@@ -1,5 +1,5 @@
 # 💫 Sobre mi:
-Actualmente estoy trabajando en mis proyectos personales :memo:<br>Me gustaría conseguir más experiencia programando en equipo :busts_in_silhouette:<br>Trabajando en mi formación :construction_worker:
+Actualmente estoy trabajando en mis proyectos personales :memo:<br>Trabajando en mi formación :construction_worker:
 
 
 ## 🌐 Redes Sociales:
