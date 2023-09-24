@@ -1,5 +1,6 @@
 # 💫 Sobre mi:
 Actualmente estoy trabajando en mis proyectos personales :memo:<br>Trabajando en mi formación :construction_worker:
+Más información en Repositorios y LinkedIn :sparkles:
 
 
 ## 🌐 Redes Sociales:
